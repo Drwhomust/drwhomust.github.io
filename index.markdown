@@ -15,14 +15,14 @@ This is my website for my shenanigans
 
 # About me
 
-Heya! My name is Drwhomust (doctor-who-must) and i am a indie game developer!
+Heya! My name is Drwhomust (doctor-who-must) and i like making stuff!
 
 I make games in my free time when i am not busy with school and I am also a artist and I love to draw!
 
-I am also.. part of many and i mean **MANY** fandoms so don't be surprised if i show up in a community of something you like!
+I am also.. part of many and i mean **MANY** fandoms so don't be surprised if i show up in a community of something you like! Ask me anything about anything too! :D
 
-Anyways you are here because you found this site from my socials well.. you are in good hands as this
-goo has you covered!
+Anyways you are here because you found this site from my social media accounts. Don't worry i got some content
+you can look at!
 
 ## Content on this site
 
