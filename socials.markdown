@@ -11,7 +11,6 @@ here are my list of socials i have!
 
 - [Youtube](https://www.youtube.com/@Drwhomust)
 - [Github](https://github.com/Drwhomust)
-- [Roblox](https://www.roblox.com/users/1026171790/profile)
 - [Newgrounds](https://drwhomust.newgrounds.com/)
 - [Bluesky](https://bsky.app/profile/drwhomust.xyz)
 - [Tumblr](https://drwhomust.tumblr.com/)
