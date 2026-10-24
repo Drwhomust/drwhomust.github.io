@@ -9,6 +9,9 @@ layout: home
 
 > This red banner for the android locking down is there because i am protest against google's new android policy on app devs that can affect us in bad ways, click on it to learn more!
 
+# WARNING!!
+**THE WEBSITE WILL BE GOING DOWN BETWEEN 10/23 - 10/25 FOR MOVING SERVER PROVIDERS AND DOMAIN... PLEASE STAND BY AND SORRY FOR DOING SO**
+
 # Welcome
 
 This is my website for my shenanigans
